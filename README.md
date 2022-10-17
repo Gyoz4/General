@@ -1,9 +1,9 @@
 # Pachka sigaret | Pack of cigarettes
 ## [Eng refference](https://youtu.be/OWDCuOKYckI) | [original](https://open.spotify.com/track/7nzMU6ive8Zpv6Puqid46W?si=nrj244fARhqNtIwIbhxuLQ\&utm_source=copy-link)
-(I'm) sitting here and looking at a foreign sky through a foreign window
-And (I) don't see a single familiar star
-I've walked on all roads (to) here and there
-Turned arround and couldn't see (my) footprints
+(I'm) sitting here and looking at a foreign sky through a foreign window  
+And (I) don't see a single familiar star  
+I've walked on all roads (to) here and there  
+Turned arround and couldn't see (my) footprints  
 
 But if in my pocket there's a pack of cigarettes
 Then everything isn't that bad on this day
