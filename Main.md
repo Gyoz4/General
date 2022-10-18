@@ -10,7 +10,7 @@ Then everything isn't that bad on this day
 And a ticket for a plane with a silver wing  
 That takes off leaving only a shadow on earth  
 
-And nobody wanted to be guilty without some reason (pun, could be translated to wine)  
+And nobody wanted to be guilty without (being at) fault (pun, could be translated to wine)  
 And noone wanted to do the dangerous work (literal = and noone wanted to move the hot coals with their hands)  
 But for us without music even death isn't beautiful  
 Don't want to dissapear without music (dissapear could be translated to die, but literal sounds better imo)  
